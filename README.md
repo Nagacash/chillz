@@ -1,1 +1,3 @@
-# chillz
+# chill
+
+We up in here 
